@@ -1,0 +1,1 @@
+# bsyra-mushaf-ayat
